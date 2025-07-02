@@ -38,7 +38,7 @@ Join a vibrant community through Discord, where traders share insights, discuss 
 
 ---
 
-[Join Profit Insider Blueprint Now](https://kelexbawz.com/profit-insider-blueprint)
+[Join Profit Insider Blueprint Now](https://whop.com/profit-insider-blueprint?a=kelechienwere1234)
 
 ---
 
@@ -58,7 +58,7 @@ Each tier is designed to offer value corresponding to the trader's level of comm
 
 ---
 
-[Unlock Lifetime Access to Profit Insider Blueprint](https://kelexbawz.com/profit-insider-blueprint)
+[Unlock Lifetime Access to Profit Insider Blueprint](https://whop.com/profit-insider-blueprint?a=kelechienwere1234)
 
 ---
 
@@ -88,7 +88,7 @@ The program's comprehensive approach ensures that traders at all levels can find
 
 ---
 
-[Start Your Trading Journey with Profit Insider Blueprint](https://kelexbawz.com/profit-insider-blueprint)
+[Start Your Trading Journey with Profit Insider Blueprint](https://whop.com/profit-insider-blueprint?a=kelechienwere1234)
 
 ---
 
@@ -126,7 +126,7 @@ These testimonials reflect the program's impact on traders' confidence and profi
 
 ---
 
-[Experience the Profit Insider Blueprint Difference](https://kelexbawz.com/profit-insider-blueprint)
+[Experience the Profit Insider Blueprint Difference](https://whop.com/profit-insider-blueprint?a=kelechienwere1234)
 
 ---
 
@@ -142,6 +142,6 @@ Profit Insider Blueprint presents a well-rounded trading program suitable for in
 
 ---
 
-[Join Profit Insider Blueprint Today](https://kelexbawz.com/profit-insider-blueprint)
+[Join Profit Insider Blueprint Today](https://whop.com/profit-insider-blueprint?a=kelechienwere1234)
 
 ---
